@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...gaming
 - 🌱 I’m currently learning ...files codes and applications
 - 💞️ I’m looking to collaborate on ... 30 july
-- 📫 How to reach me ... programmist
+- 📫 How to reach me ... my mail gycevvlad3@gmail.com
 
 <!---
 Sansanyacomics11/Sansanyacomics11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
